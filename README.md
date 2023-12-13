@@ -1,4 +1,4 @@
-                                                                                                                    👋 Hi there, I'm Fayiz
+                                              👋 Hi there, I'm Fayiz
 
 
 <!---
